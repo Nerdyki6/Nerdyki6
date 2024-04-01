@@ -10,4 +10,9 @@
 Nerdyki6/Nerdyki6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->Hi, i'm@Nerdyki6
-- im interest in 
+- im interest in 🥷🏾
+- im currntly learing about kakapo a bird the lives in austalia.
+- i'm learnig to collabarate on monkeys
+- how to reach me gmail:nerdykid784@gmail.com
+- pronouns f that crap.
+- fun fact im african.
